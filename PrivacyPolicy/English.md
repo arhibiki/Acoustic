@@ -24,4 +24,4 @@ This app does not disclose user information to third parties.
 
 If you have any questions or concerns, please contact us at:
 
-Email Address: arhibiki0408@gmail.com
+Email Address: acousticapp.contact@gmail.com
