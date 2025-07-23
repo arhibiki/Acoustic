@@ -19,5 +19,5 @@
 
 ### ○ お問い合わせ先
 何かご不明な点がございましたらお問い合わせください。  
-メールアドレス: arhibiki0408@gmail.com
+メールアドレス: acousticapp.contact@gmail.com
 
